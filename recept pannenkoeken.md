@@ -1,4 +1,4 @@
-![pannenkoek](img_097757_1600x_JPG "title")
+![pannenkoek](img_097757_1600x_JPG.jpg "title")
 # recept pannenkoeken
 
 ## ingredienten
